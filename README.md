@@ -4,3 +4,8 @@ cosa
 ocsa
 yo 
 hoaaaa
+holaaaaa
+como bas
+hola
+kk
++a
